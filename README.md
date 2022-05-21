@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ElGatoU155
+- 👀 I’m interested in Videogames, Movies, Comics, Music, etc
+- 🌱 I’m currently learning everything i can
+- 💞️ I’m looking to collaborate on games :3
+- 📫 How to reach me: @stevencerdassanchez on instagram
